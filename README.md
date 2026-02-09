@@ -1,4 +1,6 @@
-## <a href="https://linktr.ee/EtwasPhoenix"> Hey </a>
+![channels4_banner](https://github.com/user-attachments/assets/2d879511-7d1c-4cdc-a3c3-7291f3cbd700)
+# <a href="https://linktr.ee/EtwasPhoenix"> Hey </a> I am schatzsuche or also known as Etwas my main <a href="https://github.com/schatzsuche"> account  <a> got for some reason banned but until I get it back i will be using this one
+
 
 <!--
 **EtwasPhoenix/EtwasPhoenix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
